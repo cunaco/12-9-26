@@ -1,1 +1,1 @@
-colledge workouts
+college workouts
